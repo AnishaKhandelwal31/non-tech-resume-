@@ -1,5 +1,5 @@
 # non-tech-resume-
-Anisha Khandelwal
+Anisha Khandelwal<br>
 Jaipur, Rajasthan |+91 8890454630 | anishakhandelwal933@gmail.com |  LinkedIn  | GitHub <br>
 <br>SUMMARY
  
